@@ -33,4 +33,8 @@ When working on projects, what I enjoy the most is problem solving and providing
 
 ## **Contact**
 
+Roblox Talenthub: https://talent.roblox.com/creators/88972160
+
+Roblox Devforum: https://devforum.roblox.com/u/wafflechad
+
 Professional Discord: wafflechad#8645
